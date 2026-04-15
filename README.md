@@ -1,2 +1,0 @@
-# NetDoctor-Clean
-بعدين
